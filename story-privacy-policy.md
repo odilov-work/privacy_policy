@@ -1,4 +1,4 @@
-# Privacy Policy for Hi
+# Privacy Policy for Sahifa
 
 **Effective Date:** 01.05.2026
 **Last Updated:** 01.05.2026
